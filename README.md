@@ -1,2 +1,0 @@
-# samilhbt.github.io
-deneme
